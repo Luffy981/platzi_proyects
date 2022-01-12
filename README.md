@@ -1,3 +1,3 @@
 # NEVER STOP LEARNING...
 
-![Platzi__img](https://media.giphy.com/media/l3lWUFTcaFBTIokIiz/giphy.gif)
+![Platzi__img](https://static.platzi.com/media/meta_tags/og/OG-platzi-Dic-2019.png)
